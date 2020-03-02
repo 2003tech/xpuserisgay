@@ -1,2 +1,2 @@
-# xpuserisgay
-xpuseris.ga/y
+# xpuserisnotgay
+kek
